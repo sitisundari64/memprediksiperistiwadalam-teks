@@ -1,0 +1,1 @@
+# memprediksiperistiwadalam-teks
